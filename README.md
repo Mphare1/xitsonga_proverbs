@@ -1,0 +1,1 @@
+# xitsonga_proverbs
